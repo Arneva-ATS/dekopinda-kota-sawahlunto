@@ -1,1 +1,1 @@
-# dekopinda-kota-sawahlunto
+# dekopinda-karanganyar
